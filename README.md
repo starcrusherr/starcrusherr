@@ -3,7 +3,7 @@
 ⠀
 
 
-## ART ABOVE NOT MINE. 
+### ART ABOVE NOT MINE. 
 
 ︵⠀ _MINOR_ . LEARNIN 2 *SHADE*. 
 an artist on.. Semi-Artblock . BAD animator Σ(゜゜)
@@ -25,4 +25,5 @@ an artist on.. Semi-Artblock . BAD animator Σ(゜゜)
  ✿  　　  　　       infp  　　   . 　　   childish.. 
 
 
+### ART BELOW NOT MINE. 
 ![image alt](https://github.com/OhMySpawn/READ.ME/blob/303066db65d1cd9d66cb62aa8751b98b402b8048/Untitled84_20250419075055.png) 
