@@ -24,3 +24,5 @@ an artist on.. Semi-Artblock . BAD animator Σ(゜゜)
       ⟢ 　　   ARO**ACE**   +   cupioromantic?..⠀   ⠀˳ᴗ ᴗ)
  ✿  　　  　　       infp  　　   . 　　   childish.. 
 
+
+![image alt](https://github.com/OhMySpawn/READ.ME/blob/303066db65d1cd9d66cb62aa8751b98b402b8048/Untitled84_20250419075055.png) 
