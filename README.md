@@ -19,3 +19,8 @@ an artist on.. Semi-Artblock . BAD animator Σ(゜゜)
 　　　　  𓏏𓏏  　◟  SHE  ノ THEY 　 ᛝ
 　　　　𓏵　  　< aliy ml 3 　 　⋌
 
+
+♩      ₊ 　　   𓎟𓎟          sprout    🌱    kinne! 
+      ⟢ 　　   ARO**ACE**   +   cupioromantic?..⠀   ⠀˳ᴗ ᴗ)
+ ✿  　　  　　       infp  　　   . 　　   childish.. 
+
