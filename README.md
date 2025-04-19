@@ -1,5 +1,5 @@
 # more info 𓆪
-![image alt](https://github.com/OhMySpawn/OhMySpawn/blob/8f73055483536346ae9b55d51ea63993eb96f152/d11e3fed308b5c3d6a71aa193f7e29c8.jpg) 
+![image alt](https://github.com/OhMySpawn/OhMySpawn/blob/8ff920b29be3ca636ffa9845acf86c9e81c55852/Untitled88_20250419090725.png) 
 ⠀
 
 **TOUCH DISCOMFORT**!! might as well if you *annoy* me, then I'll gladly **hide** you!! ^_^
@@ -15,3 +15,5 @@
 (◦ ˘ᴗ˘)  ⌑  ┈  ◦ 🗡  ﹕   MYLOVEE ﹕ ALIY MWAMWA
 
 ## none of these arts are mine. 
+
+![image alt](https://github.com/OhMySpawn/OhMySpawn/blob/2012f0a4475b637e62d3f8ae7bc0320ec49a4c61/Untitled88_20250419090741.png) 
