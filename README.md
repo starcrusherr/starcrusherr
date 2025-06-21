@@ -4,4 +4,4 @@
 
 ㅤ         𓈒    ୭ৎ    𝗆𝗂𝗓𝗂    𝅄    ✧      ۪   ݁   𓈒 
 
-go follow main~ : @loudshqrk
+go follow main~ : @unlikelyweepingstar
